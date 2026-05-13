@@ -1,4 +1,4 @@
-
+Mullvad ultimate Extension: end-to-end-encryption & double-VPN is the best Mullvad extension, featuring end-to-end-encryption and double-VPN. Secure, fast, and optimized for
 
 
 
